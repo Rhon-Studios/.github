@@ -1,4 +1,0 @@
-# Rhon Studios
----
-
-Prueba
